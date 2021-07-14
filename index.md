@@ -7,11 +7,11 @@
     4. [an autumn ‘18 Sunday night in Avenue Chablière](https://open.spotify.com/playlist/79vTTKwmFF8JkLdOzGKg35?si=869d34a7f5ec402e) 
 2. [Nudes](https://user-images.githubusercontent.com/87386518/125496976-30fc2301-7d65-4b68-8927-bece84426385.png) 
 
-### 📫 Contact 
+### Contact 
 
 <a href="mailto:pepedigital@protonmail.com">pepedigital@protonmail.com</a>
 
-### 📪 Complaints 
+### Complaints 
 [click here](https://user-images.githubusercontent.com/87386518/125499549-1c56df3c-73a6-497a-8a96-6178b75303ac.png) to send a complaint.
 
 
